@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Itsmrwatcher
+- 👀 I’m interested in Coding, graphics design and founding companys
+- 🌱 I’m currently learning Ruby
+- 💞️ I’m looking to collaborate on Anything
+- 📫 How to reach me Github comments
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: I work for cfx.re main hsoters of FiveM!
